@@ -6,7 +6,7 @@ Born and based in Rosario, Argentina 🇦🇷, I’ve always loved exploring how
 
 💻 I’m passionate about programming, database design, and web development. I love working with Python and SQL, and I'm currently building a gym management web application! 
 
-🎮 When I'm not deep in code or studying for my exams, you can usually find me gaming. I enjoy a mix of competitive and story-driven titles like Fortnite, Grand Theft Auto V, and Senua’s Saga: Hellblade II. 
+🎮 When I'm not deep in code or studying for my exams, you can usually find me gaming. I enjoy a mix of competitive and story-driven titles like Baldurs Gate 3 and Persona 4. 
 
 📚 I love a good epic fantasy—I'm a massive fan of Brandon Sanderson's literature and the Cosmere universe (especially *Mistborn* and *The Stormlight Archive*). Aside from tech and books, I enjoy  learning new languages; I speak Spanish and English (B2), and I'm currently in my second year of studying German!
 
