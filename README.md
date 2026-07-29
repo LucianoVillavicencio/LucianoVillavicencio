@@ -10,4 +10,4 @@ Born and based in Rosario, Argentina 🇦🇷, I’ve always loved exploring how
 
 📚 I love a good epic fantasy—I'm a massive fan of Brandon Sanderson's literature and the Cosmere universe (especially *Mistborn* and *The Stormlight Archive*). Aside from tech and books, I enjoy  learning new languages; I speak Spanish and English (B2), and I'm currently in my second year of studying German!
 
-[LinkedIn]((https://www.linkedin.com/in/lucianovillavicencio/)) •  [Spotify]((https://open.spotify.com/user/lucho_163)) • [Instagram]((https://www.instagram.com/lucho.villavicencio/))
+[LinkedIn](https://www.linkedin.com/in/lucianovillavicencio/) •  [Spotify](https://open.spotify.com/user/lucho_163) • [Instagram](https://www.instagram.com/lucho.villavicencio/)
